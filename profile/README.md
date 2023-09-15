@@ -5,8 +5,6 @@ All the answers have always been within. I have experienced my essence and my li
 
 In addition, being part of a multi-racial and multilingual family further informed my appreciation and respect for others of different backgrounds. I have lived in Korea, the US, Canada, the UK, and now Singapore which uncovered the importance of cultural nuances in my session.
 
-![image](https://github.com/aurachakra/.github/assets/5246059/f1751003-09ee-4102-ae22-b1f773e0a6ea)
-
 # Our Locations
 
 * Dempsey Hill Area
