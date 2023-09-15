@@ -1,4 +1,4 @@
-# About Me
+# About
 After experiencing the highs and lows of going into business with a family member, I reached a significant turning point in my life. During this dark time, I began to question existence while exploring the deepest parts of human nature. It was through the pain that my purpose was emergent because light and dark always exist side by side.
 
 All the answers have always been within. I have experienced my essence and my life purpose to embrace. Now, I can see and appreciate my past journey as a catalyst for the creation of MY AURA CHAKRA.  I’m here to help you discover your light and own the essence that makes you most unique.
